@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Adriano Rocha Campos built the selecTooth® app as a Free app. This SERVICE is provided by Adriano Rocha Campos and Daniel de Moraes Telles at no cost and is intended for use as is.
+Adriano Rocha Campos and Daniel de Moraes Telles built the selecTooth® app as a Free app. This SERVICE is provided at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
